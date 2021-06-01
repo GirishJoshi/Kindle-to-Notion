@@ -1,0 +1,51 @@
+
+
+“Paper has more patience than people.”.
+
+About “asking Father’s permission,” I swerve.
+
+.
+
+He’s an absolute hypochondriac!.
+
+I’ve learned one thing: you only really get to know a person after a fight.
+
+I’ve learned one thing: you only really get to know a person after a fight. Only then can you judge their true character!.
+
+Everyone thinks I’m showing off when I talk, ridicu lous when I’m silent, insolent when I answer, cunning when I have a good idea, lazy when I’m tired, selfish when I eat one bite more than I should, stupid, cowardly, calculating, etc., etc. All day long I hear nothing but what an exasperating child I am, and although I laugh it off and pretend not to mind, I do mind. I wish I could ask God to give me another personality,.
+
+Everyone thinks I’m showing off when I talk, ridicu lous when I’m silent, insolent when I answer, cunning when I have a good idea, lazy when I’m tired, selfish when I eat one bite more than I should, stupid, cowardly, calculating, etc., etc. All day long I hear nothing but what an exasperating child I am, and although I laugh it off and pretend not to mind, I do mind. I wish I could ask God to give me another personality, one that doesn’t antagonize everyone.
+
+Now continue with a typical day in the Annex.
+
+Crying can bring relief, as long as you don’t cry alone.
+
+Can you tell me why people go to such lengths to hide their real selves? Or why I always behave very differently when I’m in the company of others? Why do people have so little trust in one another? I know there must be a reason, but sometimes I think it’s horrible that you can’t ever confide in anyone, not even those closest to you.
+
+Going underground or into hiding has become as routine as the proverbial pipe and slippers that used to await the man of the house after a long day at work. There are many resistance groups, such as Free Netherlands, that forge identity cards, provide financial support to those in hiding, organize hiding places and find work for young Christians who go underground. It’s amazing how much these generous and unselfish people do, risking their own lives to help and save others. The best example of this is our own helpers, who have managed to pull us through so far and will hopefully bring us safely to shore, because otherwise they’ll find themselves sharing the fate of those they’re trying to protect. Never have they uttered a single word about the burden we must be, never have they complained that we’re too much trouble. They come upstairs every day and talk to the men about business and politics, to the women about food and wartime difficulties and to the children about books and newspapers. They put on their most cheerful expressions, bring flowers and gifts for birthdays and holidays and are always ready to do what they can. That’s something we should never forget; while others display their heroism in battle or against the Germans, our helpers prove theirs every day by their good spirits and affection. The most bizarre stories are making the rounds, yet most of them are really true. For instance, Mr. Kleiman reported this week that a soccer match was held in the province of Gelderland; one team consisted entirely of men who had gone underground, and the other of eleven Military Policemen. In Hilversum, new registration cards were issued. In order for the many people in hiding to get their rations (you have to show this card to obtain your ration book or else pay 60 guilders a book), the registrar asked all those hiding in that district to pick up their cards at a specified hour, when the documents could be collected at a separate table.
+
+Going underground or into hiding has become as routine as the proverbial pipe and slippers that used to await the man of the house after a long day at work. There are many resistance groups, such as Free Netherlands, that forge identity cards, provide financial support to those in hiding, organize hiding places and find work for young Christians who go underground. It’s amazing how much these generous and unselfish people do, risking their own lives to help and save others. The best example of this is our own helpers, who have managed to pull us through so far and will hopefully bring us safely to shore, because otherwise they’ll find themselves sharing the fate of those they’re trying to protect. Never have they uttered a single word about the burden we must be, never have they complained that we’re too much trouble. They come upstairs every day and talk to the men about business and politics, to the women about food and wartime difficulties and to the children about books and newspapers. They put on their most cheerful expressions, bring flowers and gifts for birthdays and holidays and are always ready to do what they can. That’s something we should never forget; while others display their heroism in battle or against the Germans, our helpers prove theirs every day by their good spirits and affection.
+
+I firmly believe that nature can bring comfort to all who suffer.
+
+Love, what is love? I don’t think you can really put it into words. Love is understanding someone, caring for him, sharing his joys and sorrows. This eventually includes physical love. You’ve shared something, given something away and received something in return, whether or not you’re married, whether or not you have a baby. Losing your virtue doesn’t matter, as long as you know that for as long as you live you’ll have someone at your side who understands you, and who doesn’t have to be shared with anyone else!.
+
+Her advice in the face of melancholy is: “Think about all the suffering in the world and be thankful you’re not part of it.” My advice is: “Go outside, to the country, enjoy the sun and all nature has to offer. Go outside and try to recapture the happiness within yourself; think of all the beauty in yourself and in everything around you and be happy.”.
+
+Her advice in the face of melancholy is: “Think about all the suffering in the world and be thankful you’re not part of it.” My advice is: “Go outside, to the country, enjoy the sun and all nature has to offer. Go outside and try to recapture the happiness within yourself; think of all the beauty in yourself and in everything around you and be happy.” I don’t think Mother’s advice can be right, because what are you supposed to do if you become part of the suffering? You’d be completely lost. On the contrary, beauty remains, even in misfortune. If you just look for it, you discover more and more happiness and regain your balance. A person who’s happy will make others happy; a person who has courage and faith will never die in misery!.
+
+This is where Mother and I differ greatly. Her advice in the face of melancholy is: “Think about all the suffering in the world and be thankful you’re not part of it.” My advice is: “Go outside, to the country, enjoy the sun and all nature has to offer. Go outside and try to recapture the happiness within yourself; think of all the beauty in yourself and in everything around you and be happy.” I don’t think Mother’s advice can be right, because what are you supposed to do if you become part of the suffering? You’d be completely lost. On the contrary, beauty remains, even in misfortune. If you just look for it, you discover more and more happiness and regain your balance. A person who’s happy will make others happy; a person who has courage and faith will never die in misery!.
+
+No one must know that my heart and mind are constantly at war with each other.
+
+Have to maintain my air of confidence. No one must know that my heart and mind are constantly at war with each other. Up to now reason has always won the battle, but will my emotions get the upper hand? Sometimes I fear they will, but more often I actually hope they do!.
+
+I have to maintain my air of confidence. No one must know that my heart and mind are constantly at war with each other. Up to now reason has always won the battle, but will my emotions get the upper hand? Sometimes I fear they will, but more often I actually hope they do!.
+
+We’ve been strongly reminded of the fact that we’re Jews in chains, chained to one spot, without any rights, but with a thousand obligations. We must put our feelings aside; we must be brave and strong, bear discomfort with- out complaint, do whatever is in our power and trust in God. One day this terrible war will be over. The time will come when we’ll be people again and not just Jews!.
+
+As you can no doubt imagine, we often say in despair, “What’s the point of the war? Why, oh, why can’t people live together peacefully? Why all this destruction?” The question is understandable, but up to now no one has come up with a satisfactory answer. Why is England manufacturing bigger and better airplanes and bombs and at the same time churning out new houses for reconstruction? Why are millions spent on the war each day, while not a penny is available for medical science, artists or the poor? Why do people have to starve when mountains of food are rotting away in other parts of the world? Oh, why are people so crazy? I don’t believe the war is simply the work of politicians and capitalists. Oh no, the common man is every bit as guilty; otherwise, people and nations would have re- belled long ago! There’s a destructive urge in people, the urge to rage, murder and kill. And until all of humanity, without exception, undergoes a metamorphosis, wars will continue to be waged, and everything that has been carefully built up, cultivated and grown will be cut down and destroyed, only to start allover again!.
+
+To be honest, I can’t imagine how anyone could say “I’m weak” and then stay that way. If you know that about yourself, why not fight it, why not develop your character? Their answer has always been: “Because it’s much easier not to!” This reply leaves me feeling rather discouraged. Easy? Does that mean a life of deceit and laziness is easy too? Oh no, that can’t be true. It can’t be true that people are so readily tempted by ease. . . and money. I’ve given a lot of thought to what my answer should be, to how I should get Peter to believe in himself and, most of all, to change himself for the better. I don’t know whether I’m on the right track.
+
+
