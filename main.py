@@ -12,8 +12,8 @@ from notion.collection import NotionDate
 from pandas.io.parsers import count_empty_vals
 
 # Notion Credentials
-token = "64df8f756cbab750702dc0c1c9995ffeb2d7acb084397f5063e6ae99ce72138299972a04792721c6927f4b9ba458cfb0f0eb02c9eef5d94b05e1fc8be38d60c0702b5f0d02718a76c043e823ef3c"
-pageurl = "https://www.notion.so/2b42581229294187af79396abf961399?v=4715a2b429ce4ed5a8a7fbacf588086b"
+token = ""
+pageurl = ""
 
 # Goodreads
 goodreads_url = "https://www.goodreads.com/book/show/"
